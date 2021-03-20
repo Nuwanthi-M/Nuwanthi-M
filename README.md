@@ -2,7 +2,7 @@
 - 💻 I’m interested in Web Development
 - 🌱 I’m currently learning Computer Science
 - 🤝 I’m looking to collaborate on others
-- 📫 How to reach me:  <i>Linked In</i>-<a href="https://www.facebook.com/kumudu.nuwanthika">Nuwanthika_Mahagedara</a>,<i>Facebook</i>-<a href="https://www.facebook.com/kumudu.nuwanthika">Nuwanthika_Mahagedara</a>,<i>Instagram</i>-<a href="https://www.facebook.com/kumudu.nuwanthika">nuwanthi_mahagedara</a>
+- 📫 How to reach me:  <i>Linked In</i>-<a href="https://www.linkedin.com/in/nuwanthika-mahagedara-252a871a0">Nuwanthika_Mahagedara</a>,<i>Facebook</i>-<a href="https://www.facebook.com/kumudu.nuwanthika">Nuwanthika_Mahagedara</a>,<i>Instagram</i>-<a href="https://www.facebook.com/kumudu.nuwanthika">nuwanthi_mahagedara</a>
 - 😊 Pronouns : She/her
 - ✨ Fun Fact : I spend my leisure time with singing songs
 
